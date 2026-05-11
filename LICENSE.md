@@ -1,4 +1,4 @@
-
+Enhance CrossOver for macOS with ultimate CrossOver for macOS Integration | resource-allocation + cross-platform-support, the #1 integration. Includes resource-allocation and
 
 
 
